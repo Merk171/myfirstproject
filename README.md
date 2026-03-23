@@ -1,2 +1,2 @@
-SO just practice at all 
+practice and only practice  
 
